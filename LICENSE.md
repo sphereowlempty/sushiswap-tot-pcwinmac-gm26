@@ -1,4 +1,4 @@
-# 
+# Premium sushiswap trading bot ferramentas for Mac OS | Elite sushiswap trading bot ferramentas for PC Windows. Featuring análise de momento and negociação de futuros — optimized for maximum performance.
 
 
 
